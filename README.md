@@ -3,7 +3,7 @@
 I am curious human being currently working on…
 
 ### ✍️ Real programming with pencil & paper 
-Keyboard not needed. First public demo in Q3 2021. 🤞
+Keyboard not needed. First tech demo – https://www.youtube.com/watch?v=0W7pPww6Z-4
 
 ---
 
